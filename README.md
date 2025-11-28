@@ -1,0 +1,1 @@
+# Raw-File-to-QR-Code-Archive-Vice-Versa-Zip-Archive-or-RAR-Archive-Only-
